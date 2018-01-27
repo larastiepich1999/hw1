@@ -21,7 +21,7 @@
 ![](https://media.giphy.com/media/xTg8B2QpPwcTxwReQU/giphy.gif)
 # Ricky Martin #
 ![](https://media.giphy.com/media/xT9IgoYQTCXxb0Zqtq/source.gif)
-
-![](
+# Мои любимые песни #
+[1](https://www.youtube.com/watch?v=p47fEXGabaY&list=PLP3XXWil4T2C0ANJu-l7MSO9c-wSz0vmz) [2](https://www.youtube.com/watch?v=t0imaSCnSuA) [3](https://www.youtube.com/watch?v=Pv0PAchVGCw) [4](https://www.youtube.com/watch?v=ULTtWUZhD9c) [5](https://www.youtube.com/watch?v=qQ3qJmgktS0&list=PL89v5UCz1sHi0JsQxQ8DBatNvs6pDV_FK) [6](https://www.youtube.com/watch?v=1cQh1ccqu8M) [7](https://www.youtube.com/watch?v=6XVrWSdCTN4)
 # *Мое расписание* #
 
