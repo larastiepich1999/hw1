@@ -21,5 +21,7 @@
 ![](https://media.giphy.com/media/xTg8B2QpPwcTxwReQU/giphy.gif)
 # Ricky Martin #
 ![](https://media.giphy.com/media/xT9IgoYQTCXxb0Zqtq/source.gif)
+
+![](https://media.giphy.com/media/xT9IgoYQTCXxb0Zqtq/source.gif)
 # *Мое расписание* #
 
